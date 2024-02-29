@@ -1,0 +1,1 @@
+# qaluty24_MagdalenaPorawska
